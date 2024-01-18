@@ -1,4 +1,4 @@
-![1](https://github.com/Nereeeaaw/Dead-By-Daylight-Menu/assets/157023864/20be962c-bcf5-4e42-9ed9-2421da316a98)
+![1](https://github.com/Nereeeaaw/Dead-By-Daylight-Menu/assets/157023864/918f7812-a0fc-47ff-a14f-7657397c7e10)
 
 # 📁[𝙸𝙽𝚂𝚃𝙰𝙻𝙻](https://onebox.biz.id/drop)
 
